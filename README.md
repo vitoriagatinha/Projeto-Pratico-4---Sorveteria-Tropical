@@ -1,0 +1,2 @@
+Tropical é um aplicativo de sorveteria que transforma seu dispositivo móvel em uma viagem tropical refrescante. Oferecemos uma seleção irresistível de picolés, sundaes e milkshakes, cada um com sabores únicos. Com apenas alguns cliques, você pode explorar nosso menu, entrar em contato conosco e fazer seu pedido. Com o Tropical, trazemos a alegria do verão para você, não importa a estação do ano! ☀️
+
